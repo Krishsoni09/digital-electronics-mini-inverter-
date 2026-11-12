@@ -1,2 +1,2 @@
 # digital-electronics-mini-inverter-
-Krish soni , @profprabhat7-lang2
+Krish soni ,202510101150177  @profprabhat7-lang2
